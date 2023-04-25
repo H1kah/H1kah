@@ -3,7 +3,7 @@
 
 - 📖 I’m study digital games at Facens 
 - 🦀 Pronouns: he/him
-- 🥸 How to reach me: 
+- 🥸 How to reach me: H1k4h_
 - a
 - a
 
