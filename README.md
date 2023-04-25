@@ -1,9 +1,10 @@
-### Hey there, my name's Daniel Hikaru! 
-[![MasterHead](https://www.chimichangas.com.br/wp-content/uploads/2019/12/a-viagem-de-chihiro-capa-1.png)](https://github.com/H1kah)
+### **_Hey there, my name's Daniel Hikaru!_**
+<img align="middle" alt="Coding" width="600" src= https://i.pinimg.com/originals/81/2b/ef/812bef685305e8bf6e8b7e54fa2012f4.gif>
 
+- 📖 I’m study digital games at Facens - 😄 Pronouns: he/him
+- 🦀 Pronouns: he/him
+- 🥸 How to reach me: 
+- a
+- a
+<img align="right" alt="Coding" width="500" src= >
 
-- 🌱 I’m study digital games at Facens
-- 😄 Pronouns: he/him
-- 📫 How to reach me: 
--->
-<img align="right" alt="Coding" width="400" src= https://pa1.narvii.com/6814/2d0d8838d6aac0b1e4fd170bc35a7653baa7fab4_hq.gif>
