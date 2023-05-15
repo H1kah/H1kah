@@ -3,7 +3,7 @@
 
 - #### 📖 I study digital games at Facens 
 - #### 🦀 Pronouns: he/him
-- #### 🥸 How to reach me:  
+- #### 🥸 How to reach me:  danihiratuka@gmail.com
 
 
 
