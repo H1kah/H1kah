@@ -4,6 +4,6 @@
 - #### 📖 I study digital games at Facens 
 - #### 🦀 Pronouns: he/him
 - #### 🥸 How to reach me:  danihiratuka@gmail.com
-
+- #### Linkedin: aind vou add
 
 
